@@ -1,0 +1,1 @@
+# atividade1.2tri.2d
